@@ -12,6 +12,6 @@ SU USO ES BAJO SU PROPIO RIESGO! Y RESPONSABILIDAD!
 
 ✔️ Diseño 3D: Rodrigo Iglesias Pin.
 
-✔️ Colaboradores
+✔️ Colaboradores:
 Luis Maenza,
 Ma. Eloísa Tourret.
