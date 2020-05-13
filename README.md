@@ -15,3 +15,12 @@ SU USO ES BAJO SU PROPIO RIESGO! Y RESPONSABILIDAD!
 ✔️ Colaboradores:
 Luis Maenza,
 Ma. Eloísa Tourret.
+
+
+➡️ Más info:
+
+https://drive.google.com/open?id=1O-MtdjQvPkLU141qRxJJspQf_7Nq2em24JQNFbCBijI
+
+➡️ INGRESÁ A NUESTRO FACEBOOK Y ENTERATE DE TODOS NUESTROS PROYECTOS!
+
+https://www.facebook.com/CombatiendoCovid19BHI/
